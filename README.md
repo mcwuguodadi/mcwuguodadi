@@ -15,7 +15,7 @@
 
 [这里是我的爱发电账号！](https://afdian.net/@mcwuguodadi)（@mcwuguodadi）
 
-IGM:[mcwuguodadi](https://namemc.com/profile/mcwuguodadi) or [Kafu_Chino_](https://namemc.com/profile/Kafu_Chino_)
+IGN:[mcwuguodadi](https://namemc.com/profile/mcwuguodadi) or [Kafu_Chino_](https://namemc.com/profile/Kafu_Chino_)
 
 Discord:mcwuguodadi#8969
 
