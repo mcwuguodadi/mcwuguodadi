@@ -7,7 +7,9 @@
 
 最经常游玩的游戏是Minecraft！口袋版0.14入坑，目前主要活动在Java版
 
-其次是原神，UID是199749302哦！
+然后是原神，UID是199749302哦！
+
+其次是明日方舟，[官服]智乃单推人#0434
 
 音游首次入坑的是Phigros，目前正在游玩音游Phigros、Arcaea、冰与火之舞A Dance Of Fire And Ice、[OSU](https://osu.ppy.sh/users/25092347)
 ## 联系我
