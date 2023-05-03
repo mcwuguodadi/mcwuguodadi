@@ -1,6 +1,8 @@
 ### 这里是mcwuguodadi的GitHub账号哦！
 
-是一只鸽子，目前仅在BiliBili和YouTube发布视频
+萝莉控！是爱吃派蒙的屑旅行者
+
+还是一只鸽子，仅在BiliBili和YouTube发布视频，不接受任何视频授权
 
 代表作[Minecraft基岩版原版语言增强包](https://github.com/mcwuguodadi/Minecraft-Bedrock-Edition-Language-Enhancement-Pack)
 ## 游戏 Game
