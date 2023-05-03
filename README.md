@@ -7,7 +7,7 @@
 代表作[Minecraft基岩版原版语言增强包](https://github.com/mcwuguodadi/Minecraft-Bedrock-Edition-Language-Enhancement-Pack)
 ## 游戏 Game
 
-最经常游玩的游戏是Minecraft！口袋版0.14入坑，目前主要活动在Java版[namemc页面](https://namemc.com/profile/mcwuguodadi.1)
+最经常游玩的游戏是Minecraft！口袋版0.14入坑，目前主要活动在Java版[「NameMC」页面」](https://namemc.com/profile/mcwuguodadi.1)
 
 「原神」：[官服]UID199749302
 
