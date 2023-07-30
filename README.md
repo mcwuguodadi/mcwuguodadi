@@ -15,6 +15,8 @@
 
 「崩坏：星穹铁道」：[官服]UID103705065
 
+「蔚蓝档案」：[国际服（亚洲）]好友代码：BFVBSWXY
+
 音游首次入坑的是Phigros，目前正在游玩音游Phigros、Arcaea、冰与火之舞A Dance Of Fire And Ice、[OSU](https://osu.ppy.sh/users/25092347)
 ## 联系我 Follow Me
 [这里是我的BiliBili账号！](https://space.bilibili.com/308086803)(UID：308086803)
