@@ -23,7 +23,7 @@
 
 [这里是我的爱发电账号！](https://afdian.net/@mcwuguodadi)（@mcwuguodadi）
 
-Minecraft IGN:[mcwuguodadi](https://namemc.com/profile/mcwuguodadi) or [Kafu_Chino_](https://namemc.com/profile/Kafu_Chino_)
+Minecraft IGN:[mcwuguodadi](https://namemc.com/profile/mcwuguodadi) or [Yukimura_Chieri_](https://zh-cn.namemc.com/profile/Yukimura_Chieri_.2)
 
 Discord:mcwuguodadi#8969
 
