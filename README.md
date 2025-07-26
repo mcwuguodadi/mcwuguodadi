@@ -5,7 +5,7 @@
 代表作(已经停更的)[Minecraft基岩版原版语言增强包](https://github.com/mcwuguodadi/Minecraft-Bedrock-Edition-Language-Enhancement-Pack)
 ## 当前状态
 
-正在奋战高考中，维护项目可能不及时，见谅
+**正在奋战高考中，维护项目可能不及时，见谅**
 
 ## 游戏 Game
 
