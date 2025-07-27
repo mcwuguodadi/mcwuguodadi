@@ -7,6 +7,8 @@
 
 **正在奋战高考中，维护项目可能不及时，见谅**
 
+I'm currently fighting hard for the college entrance examination. The maintenance of the project may not be timely. Please excuse me.
+
 ## 游戏 Game
 
 最经常游玩的游戏是Minecraft！口袋版0.14入坑，目前主要活动在Java版
