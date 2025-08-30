@@ -1,4 +1,4 @@
-### 这里是mcwuguodadi的GitHub账号哦！
+### 这里是大地的GitHub账号哦！
 
 一只鸽子，仅在BiliBili和YouTube发布视频，不接受任何视频授权
 
