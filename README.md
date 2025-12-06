@@ -23,9 +23,9 @@ I'm currently fighting hard for the college entrance examination. The maintenanc
 
 音游（现在很少玩了.gif）首次入坑的是Phigros，目前正在游玩音游Phigros、Arcaea、冰与火之舞A Dance Of Fire And Ice、[OSU](https://osu.ppy.sh/users/25092347)
 ## 联系我 Follow Me
-[这里是我的BiliBili账号！](https://space.bilibili.com/308086803)(UID：308086803)
+[这是我的BiliBili账号！](https://space.bilibili.com/308086803)(UID：308086803)
 
-[这里是我的爱发电账号！](https://afdian.net/@mcwuguodadi)（@mcwuguodadi）
+[这是我的爱发电账号！](https://afdian.net/@mcwuguodadi)（@mcwuguodadi）
 
 Minecraft IGN:[mcwuguodadi](https://namemc.com/profile/mcwuguodadi) or [Yukimura_Chieri_](https://zh-cn.namemc.com/profile/Yukimura_Chieri_.2)
 
