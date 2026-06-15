@@ -3,12 +3,6 @@
 一只鸽子，仅在BiliBili和YouTube发布视频，不接受任何视频授权
 
 代表作(已经停更的)[Minecraft基岩版原版语言增强包](https://github.com/mcwuguodadi/Minecraft-Bedrock-Edition-Language-Enhancement-Pack)
-## 当前状态
-
-**正在奋战高考中，维护项目可能不及时，见谅**
-
-I'm currently fighting hard for the college entrance examination. The maintenance of the project may not be timely. Please excuse me.
-
 ## 游戏 Game
 
 最经常游玩的游戏是Minecraft！口袋版0.14入坑，目前主要活动在Java版
